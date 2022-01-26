@@ -4,7 +4,7 @@
 
 2022년 1월부터 동남아시아 요리 시작함. 일단 레서피부터 참고.
 
-![소스와 레서피](/IMG_2816.HEIC)
+![소스와 레서피](https://github.com/pastry-personal/recipes/blob/main/IMG_2816.HEIC?raw=true)
 ![소스와 레서피](/IMG_2817.HEIC)
 ![소스와 레서피](/IMG_2818.HEIC)
 ![소스와 레서피](/IMG_2819.HEIC)
