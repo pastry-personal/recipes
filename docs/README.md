@@ -2,7 +2,7 @@
 
 ### 동남아시아 요리 시작
 
-2022년 1월부터 동남아시아 요리 시작함. 일단 레서피부터 참고.
+2022년 1월부터 동남아시아 요리 시작함. 일단 레서피부터 참고. 
 
 ![소스와 레서피](/recipes/assets/IMG_2816.HEIC)
 ![소스와 레서피](/recipes/assets/IMG_2817.HEIC)
@@ -29,3 +29,4 @@
 ![소스와 레서피](/recipes/assets/IMG_2838.HEIC)
 
 Source: 동남아시아 푸드 트립
+Source: /docs/
