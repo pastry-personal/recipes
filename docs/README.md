@@ -112,6 +112,22 @@ In same skillet, melt 2 tablespoons butter and 1 tablespoon oil over medium heat
 
 To serve, dip croutons in wine sauce, then coat in parsley. Add pearl onions, mushrooms and remaining half of the cooked lardons to the pot. Baste with wine sauce, sprinkle with parsley and serve with croutons on top.
 
+### 샥슈카
+
+출처: https://www.10000recipe.com/recipe/6938877
+
+출처: https://www.youtube.com/watch?v=gRhrINsfr90&feature=emb_title
+
+출처: https://m.blog.naver.com/PostView.nhn?isHttpsRedirect=true&blogId=hannah2016au&logNo=221593496830&categoryNo=0&proxyReferer=
+
+1. 올리브유(식용유)를 두르고 마늘과 양파를 먼저 볶아요. 양파가 갈색이 될때까지 볶습니다. 마늘 3톨, 양파 1개, 올리브유 3Tbsp. 나중에 들어갈 카이엔페퍼 대신 페페론치노 홀을 사용하시려면 지금 볶으세요.
+2. 양파가 다 익으면 피망과 방울토마토도 넣고 볶아요. 홀 토마토 통조림이 아니라 생 토마토를 쓰신다면 지금 넣으면 됩니다. 생토마토는 2~30분 한참 익혀야해서 추천하긴 어렵지만 신선한 맛은 더 좋아요.
+3. 재료의 숨이 살짝 죽으면 파프리카파우더, 카이엔페퍼, 큐민을 넣고 살짝 볶아요. 너무 많이 볶으면 향이 다 날아가요.
+4. 토마토를 넣고 잘 섞은 다음 뚜껑을 덮고 5분 정도 익힙니다. 수분이 다 날아갈 때까지 끓이진 마세요.
+5. 소금과 후추를 넣고 간을합니다.
+6. 숟가락으로 계란이 들어갈 자리를 만들어 준 다음 노른자가 풀어지지 않게 살짝 놓습니다.
+7. 취향에 따라 고수, 올리브, 치즈 등을 올려드시면 더 맛있습니다.
+
 ## 빵
 
 ### 브라우니
